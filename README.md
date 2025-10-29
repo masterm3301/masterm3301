@@ -1,4 +1,4 @@
-Hi there 👋, I'm a Othmane
+Hi there 👋,
 
 Welscome to my github profile, where I Try to change the world , with independent tech alternatives away from big tech giants that control the world . 
 I am:
